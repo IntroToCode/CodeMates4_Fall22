@@ -9,10 +9,10 @@ Breakfast Casserole
 
 ## Equipment needed:
 
-9x13" pan
-Large skillet
-Large mixing bowl
-Wooden spoon for stirring
+# 9x13" pan
+# Large skillet
+# Large mixing bowl
+# Wooden spoon for stirring
 
 ## Steps for preparation:
 
