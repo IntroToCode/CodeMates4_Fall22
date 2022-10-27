@@ -27,6 +27,16 @@ Prep: 15 minutes Cook: 10 minutes Total: 25 minutes
 
 ## Steps for preparation:
 
+1. Preheat oven to 400°F. Spray a 9×13 baking dish with nonstick spray.
+2. Heat olive oil over medium heat in a medium skillet.
+3. Add onion to skillet and cook for 2-3 minutes, or until the onion is translucent and fragrant.
+4. Stir in the chicken, taco seasoning, tomatoes (FULLY DRAINED), and green chiles (FULLY DRAINED) *see note. Stir to combine fully. Reduce to simmer and allow to cook for 5-8 minutes.
+5. Place the taco shells in the baking dish, standing up. I was able to fit 10 taco shells in the dish by adding 2 on each side.
+6. Bake the taco shells for 5 minutes by themselves to allow them to crisp up. Remove from the oven.
+7. Spoon 1 tablespoon of beans into the bottom of each taco shell. Top with the chicken mixture, almost to the top of each shell.
+8. Sprinkle each shell generously with shredded cheese, the more the better!
+9. Bake for 7-10 minutes or until cheese is fully melted and the edges of the shells are browned.
+10. Remove from the oven and top with your favorite items such as jalapenos, sour cream, cilantro, and salsa.
 
 
 ### Notes:
